@@ -1,2 +1,0 @@
-# rafokin
-# prueba probada
